@@ -24,7 +24,7 @@ plsplspslspsl be my friend im very cool ◞  if i crown u its becuz i want 2 be 
 
 
 
-　　　　　𐔌　　　[ask me questions ノ leave a note](https://neospring.org/@luvfawn)　　 ♡　　 [art cr](https://x.com/l17168254)
+　　　　　𐔌　　　[ask me questions ノ leave a note](https://bambiluv.atabook.org)　　 ♡　　 [art cr](https://x.com/l17168254)
        
 　　　 　　　 　　 ![](https://komarev.com/ghpvc/?username=luvfawn&label=ℬambi++visits+ꕀ+++&color=B06C65)
 
