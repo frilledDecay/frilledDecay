@@ -14,7 +14,7 @@ very social person 　　　　𖹭　　　often off tab , whisp 4 my attention
 
 when im sitting with friends , feel free to join the convo but *dont* cover them lol
 
-ᛝ 　　ships r fine to interact , im a multishipper && multifndom　:　im 17 so 15 + int
+ᛝ 　　ships r fine to interact , im a multishipper && multifndom　:　im 18 so 16 + int
 
 plsplspslspsl be my friend im very cool ◞  if i crown u its becuz i want 2 be friends sb...
 
