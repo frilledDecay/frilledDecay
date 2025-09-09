@@ -1,31 +1,20 @@
-︶ ୨୧ ︶　　　　𝒟reaming of all the ways i can 
+︶ ୨୧ ︶　　　　Porcelain  　 𝒟ecay
 
-　　　　　　　　　　   ⌢⌢       　 　♡  　 　　c͟h͟a͟n͟g͟e͟ y͟o͟u͟ , the ways i can 
-      
-　　　　　　*make* you mine
+　　　　　　　　　　   ⌢⌢       　 　♡  　 
 
-![](https://files.catbox.moe/9y3jkn.png)
-
-　　　　　　　⁀➴　　.　 ℛules for pony town　　*!*　　
-
-⊹ 　　　c + h is encouraged , sit with me idm !!!　　  　no need 2 ask , just approach 
-
-very social person 　　　　𖹭　　　often off tab , whisp 4 my attention ノ to int　 𓎟𓎡 
-
-when im sitting with friends , feel free to join the convo but *dont* cover them lol
-
-ᛝ 　　ships r fine to interact , im a multishipper && multifndom　:　im 18 so 16 + int
-
-plsplspslspsl be my friend im very cool ◞  if i crown u its becuz i want 2 be friends sb...
-
-`𓊈 p.s. may be dry @ times due to doing other things or feeling sleepy nd if i dscnnct its becuz im playing roblox !` 
-
-`if u have c + h in ur name i WILL be taking u up on that DONT PUT IT IN UR NAME IF U DOTN ACTUALLYWANT PPL TO SIT WITH YOU OH YMGOD URE SO ANNOYIGN𓊉`
+ <img width="450" height="345" alt="borrowed time" src="https://github.com/user-attachments/assets/6d24170d-4e38-404e-a1bc-631f0f15a010" />
 
 
+18 y.o   　  　C+H pls, thx  　  　  w2i cz im offtb or in menu
 
-　　　　　𐔌　　　[ask me questions ノ leave a note](https://bambiluv.atabook.org)　　 ♡　　 [art cr](https://x.com/l17168254)
+ships r fine 2 int idc 　  BMF im cool　   diagnosed w shi idk
+
+lol i will sit w u if u have c+h in ur name, dont bother using
+
+it if u dont want randoms sitting w u like??? `p.s dont copy` 
+
+`my skins u uninspired bozos 🤣🤣🤣`
+
+𐔌　　　[ask me questions ノ leave a note](https://bambiluv.atabook.org)　　 ♡　　 [art cr](https://x.com/l17168254)
        
 　　　 　　　 　　 ![](https://komarev.com/ghpvc/?username=luvfawn&label=ℬambi++visits+ꕀ+++&color=B06C65)
-
-![](https://files.catbox.moe/ytopi7.png)
