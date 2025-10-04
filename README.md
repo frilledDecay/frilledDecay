@@ -23,7 +23,7 @@
 
 <p align="center">
 𐔌　　　
-  <a href="https://illusioncarnival.atabook.org">ask me questions ノ leave a note</a>
+  <a href="https://knightoftime.atabook.org">ask me questions ノ leave a note</a>
  　　 ♡　　 
  </b><br> 
  
