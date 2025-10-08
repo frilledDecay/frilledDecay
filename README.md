@@ -23,7 +23,7 @@
 
 <p align="center">
 𐔌　　　
-  <a href="https://wiltedpetals.atabook.org">ask me questions ノ leave a note</a>
+  <a href="https://wxhispers.atabook.org">ask me questions ノ leave a note</a>
  　　 ♡　　 
  </b><br> 
  
