@@ -23,8 +23,8 @@
 
 <p align="center">
 𐔌　　　
-  <a href="https://wxhispers.atabook.org">ask me questions ノ leave a note</a>
- 　　 ♡　　 
+  <a href="https://wxhispers.atabook.org">leave a note</a>
+ 　　 ♡　　 <a href="https://github.com/vinylstatic">follow alt</a>　 ..
  </b><br> 
  
 　　　 　　　 　　  <p align="center"> ![](https://komarev.com/ghpvc/?username=luvfawn&label=ℬambi++visits+ꕀ+++&color=B06C65) 
